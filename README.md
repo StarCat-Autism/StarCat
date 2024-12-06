@@ -1,1 +1,1 @@
-# Hi I'm StarCat, your best AI Autism mentor ~
+# Hi I'm StarCat, your best AI Autism counseling helper ~
